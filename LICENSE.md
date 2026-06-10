@@ -1,4 +1,4 @@
-
+rare Astrill VPN Connector | dedicated-IP + PPTP-support is the best Astrill VPN connector, featuring dedicated-IP and PPTP-support. Secure, fast, and optimized for privacy.
 
 
 
